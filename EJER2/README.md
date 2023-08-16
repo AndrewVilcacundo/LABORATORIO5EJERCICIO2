@@ -1,4 +1,4 @@
-# Andrew Vilcacundo
+# Andrew Vilcacundo y Brandon Sandoval
 
 
 ### EJERCICIO 2
